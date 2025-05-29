@@ -1,0 +1,1 @@
+## Website ecommerce seguindo video [ Create a Ecommerce Website Using HTML CSS And JavaScript - JavaScript Working Shopping Cart](https://www.youtube.com/watch?v=18Jvyp60Vbg&t=256s)
